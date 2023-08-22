@@ -12,4 +12,4 @@
 [Telegram](https://t.me/prozorovpro)
 
 Резюме
-[Резюме]([https://t.me/prozorovpro](https://hh.ru/resume/3d9968f4ff0c1bf4a50039ed1f766e72584466)https://hh.ru/resume/3d9968f4ff0c1bf4a50039ed1f766e72584466)
+[Резюме](https://hh.ru/resume/3d9968f4ff0c1bf4a50039ed1f766e72584466)
